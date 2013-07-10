@@ -25,3 +25,13 @@ Though time's at a premium in all of our lives, 30 minutes a day spent on the co
 ### 3. Inbound Marketing = SEO
 
 By taking control of your inbound marketing and focussing your efforts around your website, you're acting as your own Search Engine Optimisation consultant. Creating content that people *want* to read and share, placing the main bulk on your website and sharing it through multiple channels can help your site to seem more *trustworthy* and so appear higher in Google and Bing's search results.
+
+### 4. Inbound Marketing Covers Thousands of Channels
+
+By using a CMC, you're limiting yourself to a single sales/marketing channel with a high cost. By making the switch to inbound, the blog that you write for your site can be shared on Twitter and Facebook, be broken down into an infographic to share on BuzzFeed or Pinterest, be turned into a presentation to throw up on Slideshare, a webinar, a workshop…the possibilities are as endless as the number of channels available. It also means that, if one of your channels should become closed, you have many others still available to use.
+
+### 5. Inbound Marketing Snowballs Over Time
+
+Rather than print advertising which, by its nature, is ephemeral, inbound marketing sticks around. As you create more content, you're creating a database of knowledge and wisdom that potential clients - and you! - can draw upon months or years in the future. This is the power of inbound - the long tail. The content you create will keep working for you.
+
+Even armed with all of this new knowledge, venturing into the world of content and inbound marketing can be daunting. For help and advise on creating sharable content, or developing your inbound marketing strategy, contact Oriel Responsive today. As the team behind Lawyerly.co.uk, Oriel Responsive has industry-leading experience in creating innovative and attractive products for the legal services industry. Call us today on 0151 242 6755 or email info@orielresponsive.co.uk for more information on our services.
