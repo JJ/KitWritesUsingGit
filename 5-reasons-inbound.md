@@ -16,4 +16,12 @@ With no further ado, here's our top 5 reasons why your business should be lookin
 
 ### 1. Inbound Marketing Builds Trust
 
-To an extent, inbound marketing is a "long game", meaning you're investing time now in order to get a return in the future. 
+To an extent, inbound marketing is a "long game", meaning you're investing time now in order to get a return in the future. The advantage is that you've already provided your potential customer with something of *value*. By giving them something they can use for *free* you're more likely to attract their *paid* business in the future, and you've established yourself as a trustworthy and authoritive voice.
+
+### 2. Inbound Marketing Costs Nothing But Time
+
+Though time's at a premium in all of our lives, 30 minutes a day spent on the core inbound activities - blogging, website optimisation, social media interaction, content curation and sharing - could help bring down your average cost-per-lead by 62%, with no capital investment. 
+
+### 3. Inbound Marketing = SEO
+
+By taking control of your inbound marketing and focussing your efforts around your website, you're acting as your own Search Engine Optimisation consultant. Creating content that people *want* to read and share, placing the main bulk on your website and sharing it through multiple channels can help your site to seem more *trustworthy* and so appear higher in Google and Bing's search results.
